@@ -12,3 +12,10 @@ On the other hand, there is the artistic "naïf - all responsiveness and seeming
 https://en.wikipedia.org/wiki/Naivety
 
 "Feigning naivety", or "playing naive," while it can be a used as a tool, is not equivalent to naivety as a lifestyle or ideology. Obviously being naive for the sake of being naive can be questioned, but applying naivety towards genuine inquiry in Situationist contexts is a potent concept.
+
+https://en.wikipedia.org/wiki/Falsifiability also plays a role. Falsifiability is the science of seeking exceptions to a rule- in science, this is most famously seen by Special Relativity. As the world follows Newtonian Motion, it is all but an practical approximation of time travel.
+
+https://en.wikipedia.org/wiki/Pyrrhonism "Pyrrhonism is an Ancient Greek school of philosophical skepticism which rejects dogma and advocates the suspension of judgement over the truth of all beliefs. It was founded by Aenesidemus in the first century BCE, and said to have been inspired by the teachings of Pyrrho and Timon of Phlius in the fourth century BCE.[1] Pyrrhonism is best known today through the surviving works of Sextus Empiricus, writing in the late second century or early third century CE.[2] The publication of Sextus' works in the Renaissance ignited a revival of interest in Skepticism and played a major role in Reformation thought and the development of early modern philosophy."
+
+It is important, however, not to be dogmatic about Pyrrhonism either. "Everything in moderation, including moderation."
+
