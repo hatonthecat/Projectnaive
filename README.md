@@ -11,4 +11,4 @@ On the other hand, there is the artistic "naïf - all responsiveness and seeming
 
 https://en.wikipedia.org/wiki/Naivety
 
-Feigning naivety", or "playing naive" while it can be a used as a tool, is not equivalent to naivety as a lifestyle or ideology. Obviously being naive for the sake of being naive can be questioned, but applying naivety towards genuine inquiry in Situationist contexts is a potent concept.
+"Feigning naivety", or "playing naive," while it can be a used as a tool, is not equivalent to naivety as a lifestyle or ideology. Obviously being naive for the sake of being naive can be questioned, but applying naivety towards genuine inquiry in Situationist contexts is a potent concept.
