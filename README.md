@@ -19,3 +19,14 @@ https://en.wikipedia.org/wiki/Pyrrhonism "Pyrrhonism is an Ancient Greek school 
 
 It is important, however, not to be dogmatic about Pyrrhonism either. "Everything in moderation, nothing in excess. Including moderation."
 
+https://www.commentary.org/articles/robert-alter-2/children-of-the-sun-by-martin-green/
+
+https://newcriterion.com/issues/2019/4/martin-greens-treasure-hunt
+
+https://worldcat.org/title/1255741054 
+
+https://archive.org/details/childrenofsunnar0000gree_s2o5/mode/2up
+
+https://www.amazon.com/gp/customer-reviews/R1OCD02NGD4X47/ref=cm_cr_dp_d_rvw_ttl?ie=UTF8&ASIN=1604190019
+
+https://www.librarything.com/author/greenmartinburgess
