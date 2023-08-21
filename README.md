@@ -1,4 +1,4 @@
-# Much Naive about Naïve
+# Much Naïve about Naïve
 
 This repository seeks to explore the label of naïve in academic discourse.
 
