@@ -17,5 +17,5 @@ https://en.wikipedia.org/wiki/Falsifiability also plays a role. Falsifiability i
 
 https://en.wikipedia.org/wiki/Pyrrhonism "Pyrrhonism is an Ancient Greek school of philosophical skepticism which rejects dogma and advocates the suspension of judgement over the truth of all beliefs. It was founded by Aenesidemus in the first century BCE, and said to have been inspired by the teachings of Pyrrho and Timon of Phlius in the fourth century BCE.[1] Pyrrhonism is best known today through the surviving works of Sextus Empiricus, writing in the late second century or early third century CE.[2] The publication of Sextus' works in the Renaissance ignited a revival of interest in Skepticism and played a major role in Reformation thought and the development of early modern philosophy."
 
-It is important, however, not to be dogmatic about Pyrrhonism either. "Everything in moderation, including moderation."
+It is important, however, not to be dogmatic about Pyrrhonism either. "Everything in moderation, nothing in excess. Including moderation."
 
