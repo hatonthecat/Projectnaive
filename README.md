@@ -19,6 +19,17 @@ https://en.wikipedia.org/wiki/Pyrrhonism "Pyrrhonism is an Ancient Greek school 
 
 It is important, however, not to be dogmatic about Pyrrhonism either. "Everything in moderation, nothing in excess. Including moderation."
 
+[2] Mark, Perrino (1995). The poetics of mockery : Wyndham Lewis's The apes of God and the popularization of modernism. 
+W.S. Maney for the Modern Humanities Research Association. p. 54. ISBN 0-901286-52-4. OCLC 34721531.
+https://www.google.com/books/edition/The_Poetics_of_Mockery/btG2UKyATbcC?hl=en
+[3] Frye, Northrop (1957-12-31). Anatomy of Criticism. Princeton: Princeton University Press. p. 232. doi:10.1515/9781400866908. ISBN 978-1-4008-6690-8. https://www.jstor.org/stable/j.ctvct0080
+
+
+[4] Baudrillard, Jean (2005). The Conspiracy of Art: Manifestos, Interviews, Essays. MIT Press. pp. 66–67. ISBN 978-1-58435-028-6.
+https://www.google.com/books/edition/The_Conspiracy_of_Art/hG8xAQAAIAAJ?hl=en
+
+[5]  Green, Martin (2008). Children of the sun : a narrative of "decadence" in England after 1918. Axios Press. p. 238. OCLC 1255741054.
+
 https://www.commentary.org/articles/robert-alter-2/children-of-the-sun-by-martin-green/
 
 https://newcriterion.com/issues/2019/4/martin-greens-treasure-hunt
