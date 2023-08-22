@@ -19,6 +19,8 @@ https://en.wikipedia.org/wiki/Pyrrhonism "Pyrrhonism is an Ancient Greek school 
 
 It is important, however, not to be dogmatic about Pyrrhonism either. "Everything in moderation, nothing in excess. Including moderation."
 
+https://en.wikipedia.org/wiki/Les_Aventures_de_T%C3%A9l%C3%A9maque
+
 https://en.wikipedia.org/wiki/Candide
 
 [2] Mark, Perrino (1995). The poetics of mockery : Wyndham Lewis's The apes of God and the popularization of modernism. 
