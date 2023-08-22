@@ -23,6 +23,8 @@ https://en.wikipedia.org/wiki/Les_Aventures_de_T%C3%A9l%C3%A9maque
 
 https://en.wikipedia.org/wiki/Candide
 
+
+
 [2] Mark, Perrino (1995). The poetics of mockery : Wyndham Lewis's The apes of God and the popularization of modernism. 
 W.S. Maney for the Modern Humanities Research Association. p. 54. ISBN 0-901286-52-4. OCLC 34721531.
 https://www.google.com/books/edition/The_Poetics_of_Mockery/btG2UKyATbcC?hl=en
@@ -46,3 +48,5 @@ https://archive.org/details/childrenofsunnar0000gree_s2o5/mode/2up
 https://www.amazon.com/gp/customer-reviews/R1OCD02NGD4X47/ref=cm_cr_dp_d_rvw_ttl?ie=UTF8&ASIN=1604190019
 
 https://www.librarything.com/author/greenmartinburgess
+
+https://en.wikipedia.org/wiki/Zhivopisets
